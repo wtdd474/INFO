@@ -12,7 +12,7 @@ Please do not scan this using virus total it can brake our generators server for
 ### DO NOT STEAL OUR DISCORD TOKEN CUZ WE USE IT TO SHOW HOW MANY PPL ARE USING OUR MULTI-TOOL DO NOT LOG IN IN THE TOKEN 
 
 ==========================
-# SUPPORT BOOK
+ SUPPORT BOOK
 ==========================
 
 == EXTRACT IT FIRST ==
